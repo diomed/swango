@@ -9,7 +9,12 @@ more lisica
 
 # [Diomedia](http://diomed.github.io/) :anchor: :trident:
 
-«·|·»
+«🕸🔱🕸»
+«·|·»  
+==microfiber==
+🕸🔱🕸
+
+furtive  
 
 I once killed a man in this repository
 and nobody ever found him. :smiling_imp: :yum:
